@@ -24,7 +24,7 @@ Senior-Focused Design Solutions: Collaborating with gerontologists, designers, a
 
 Email: mileswilson@fractalfrissons.com
 
-LinkedIn: [Miles Wilson](www.linkedin.com/in/miles-wilson-240624220)
+LinkedIn: [Miles Wilson](www.linkedin.com/in/miles-wilson-fractalfrissons)
 
 Twitter: [@MilesWilson](https://twitter.com/MairuzuAMVs)
 
