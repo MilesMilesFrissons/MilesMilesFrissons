@@ -1,4 +1,4 @@
-### 🔥 Visionary for Universal Safety 🔥
+### 🔥Visionary for Universal Safety🔥
 
 **Mission:** Transforming how we understand and solve the universe’s biggest challenges through collective effort and decentralized technology.
 
